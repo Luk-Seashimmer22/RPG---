@@ -1,1 +1,3 @@
-# RPG | COISAS DO RP---
+| RPG | COISAS DO RP | 
+
+FEITO POR LUK
